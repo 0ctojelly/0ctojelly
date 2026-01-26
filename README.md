@@ -12,6 +12,18 @@ HAII! (,,>ヮ<,,)!⠄
 
 ⠄･ ⋆ fandoms
 
- **tbhk**,
+tbhk is my biggest interest,, BUT i specifically really rwally rwwlly reallyREALLY love tsukasa!! he's my
+special interest so i'll most likely be him on pt like 96.7195% of the time...
+
+kikuo, YES specifically kikuo.
+ultrakill, splatoon,
+vocaloid (mainly the producers)
+dandys world, slendytubbies, IT , pjsk, madoka magica, and more stuff that i dont feel like listing
+
+
+
+
+
+
 
 
