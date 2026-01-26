@@ -1,14 +1,7 @@
 HAII! (,,>ヮ<,,)!⠄
 
-⠄･ ⋆ about me 
+[⠄･ ⋆ about me](https://github.com/0ctojelly/0ctojelly/blob/main/about%20me)
 
-ᰍ you can call me by the character name or in-game name of my pony. i'll share my real name if i'm comfortable with you! 
-
-ᰍ if you wanna know my exact age, just ask me (only if i've already been talking to you for a while!!)
-
-ᰍ i go by she/they, but i don't mind if you call me by the pronouns of whoever my pony is ˙ᵕ˙
-
-ᰍ i mainly sit around and observe others, but you're always free to talk with me! i might be awkward depending if i vibe with you or not...other than that, i'm pretty talkative most of the time! :D
 
 ⠄･ ⋆ fandoms
 
