@@ -4,7 +4,7 @@ HAII! (,,>ヮ<,,)!⠄
 
 ᰍ you can call me by the character name or in-game name of my pony. i'll share my real name if i'm comfortable with you! 
 
-ᰍ im a dumb little **minor** who knows nothing about the cruel world..  for my specific age, i'll tell you if you ask me
+ᰍ if you wanna know my exact age, just ask me (only if i've already been talking to you for a while!!)
 
 ᰍ i go by she/they, but i don't mind if you call me by the pronouns of whoever my pony is ˙ᵕ˙
 
