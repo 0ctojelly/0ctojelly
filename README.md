@@ -24,7 +24,9 @@ dandys world, slendytubbies, IT , pjsk, madoka magica, and more stuff that i don
 ⠄･ ⋆ pony town stuff
 
 ᰍ DNC PLEASE!! if you wanna take inspo, just ask me!!
-ᰍ i really dont have a set place i hang around yet so i could be anywhere
+
+ᰍ i dont really have a set place i hang around yet so i could be anywhere
+
 ᰍ like i said earlier im probably just watching other ponies or hanging around one of my friends or people in the same fandom
 
 
