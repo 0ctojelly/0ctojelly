@@ -1,4 +1,4 @@
-HAII! (,,>ヮ<,,)!⠄
+HAII! (,,>ヮ<,,)
 
 [⠄･ ⋆ about me](https://github.com/0ctojelly/0ctojelly/blob/main/about%20me)
 
