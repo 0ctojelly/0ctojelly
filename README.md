@@ -1,22 +1,20 @@
-HAII! (,,>ヮ<,,)
+<p align="center"> (,,>ヮ<,,)
 
-p align="center">
-  <img src="https://dividers.crd.co/assets/images/gallery04/1196d7bc.png?v=05d33f91"/>
+
+
+
+<p align="center">
+  <img src="https://cdn.discordapp.com/attachments/1104962108115927093/1465445220891099218/Untitled2569_20260126141738.png?ex=697921b7&is=6977d037&hm=a730e4bf916645e7396ab2dc728b6e04ae64cb97200f75e8ba696d528ee5ce09" height="420"; width="420"/>
 </p>
 <br>
 
-<p align="center">
-  <img src="https://cdn.donmai.us/sample/d4/ea/__alcryst_and_diamant_fire_emblem_and_1_more_drawn_by_wogesb__sample-d4ea2316b1dce9d8226eb365a1445375.jpg" height="420"; width="420"/>
-</p>
-<br>
-<p align="center">​🇳​​🇪​​🇷​​🇴​ • ​🇸​​🇭​​🇪​/​🇭​​🇪​ • ​🇸​​🇮​​🇬​​🇳​ ​🇦​​🇹​​🇦​ !! • 🇧​​🇷​​🇴​​🇩​​🇮​​🇦​ ​🇨​​🇮​​🇹​​🇮​​🇿​​🇪​​🇳​ ​🇫​​🇴​​🇷​ ​🇷​​🇪​​🇦​​🇱​, ​🇩​​🇮​​🇦​​🇲​​🇦​​🇳​​🇹​❜​🇸​ ​🇧​​🇪​​🇦​​🇺​​🇹​​🇮​​🇫​​🇺​​🇱​ ​🇼​​🇮​​🇫​​🇪​​
-<p align="center">
-  <img src="https://dividers.crd.co/assets/images/gallery04/1196d7bc.png?v=05d33f91"/>
+ <p align="center">
+  <img src="https://dividers.crd.co/assets/images/gallery04/2eec0f7d.png?v=05d33f91"/>
 </p>
 <br>
 
 <details align="center">
-  <summary>ａｂｏｕｔ ｍｅ °˖➴</summary>
+  <summary><ins>about me</ins> °˖➴</summary>
 
   <div align="center">
     <p>hey ^_^ call me nero!! nicknames are fine as well</p>
