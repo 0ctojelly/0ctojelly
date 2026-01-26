@@ -27,7 +27,7 @@ dandys world, slendytubbies, IT , pjsk, madoka magica, and more stuff that i don
 
 ᰍ i dont really have a set place i hang around yet so i could be anywhere
 
-ᰍ like i said earlier im probably just watching other ponies or hanging around one of my friends or people in the same fandom
+ᰍ like i said earlier im probably just watching other ponies or hanging around one of my friends / with people in the same fandom
 
 
 
