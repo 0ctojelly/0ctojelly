@@ -12,18 +12,20 @@ HAII! (,,>ヮ<,,)!⠄
 
 ⠄･ ⋆ fandoms
 
-tbhk is my biggest interest,, BUT i specifically really rwally rwwlly reallyREALLY love tsukasa!! he's my
+ᰍ tbhk is my biggest interest,, BUT i specifically really rwally rwwlly reallyREALLY love tsukasa!! he's my
 special interest so i'll most likely be him on pt like 96.7195% of the time...
 
-kikuo, YES specifically kikuo.
+ᰍ kikuo, YES specifically kikuo.
 ultrakill, splatoon,
 vocaloid (mainly the producers)
 dandys world, slendytubbies, IT , pjsk, madoka magica, and more stuff that i dont feel like listing
 
 
+⠄･ ⋆ pony town stuff
 
-
-
+ᰍ DNC PLEASE!! if you wanna take inspo, just ask me!!
+ᰍ i really dont have a set place i hang around yet so i could be anywhere
+ᰍ like i said earlier im probably just watching other ponies or hanging around one of my friends or people in the same fandom
 
 
 
