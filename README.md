@@ -9,12 +9,12 @@
 <br>
 
  <p align="center">
-  <img src="https://dividers.crd.co/assets/images/gallery04/2eec0f7d.png?v=05d33f91"/>
+  <img src="https://dividers.crd.co/assets/images/gallery04/2eec0f7d.png?v=05d33f91"height="100"; width="200"/>
 </p>
 <br>
 
 <details align="center">
-  <summary><ins>about me</ins> °˖➴</summary>
+  <summary><ins>about ｍe<ins> .ೃ࿔*:･</summary>
 
   <div align="center">
     <p>hey ^_^ call me nero!! nicknames are fine as well</p>
