@@ -73,13 +73,16 @@
     <p>dandy's world. Yeah  </p>
     <p>cookie run (mainly kingdom)</p>
     <p>papa louie games</p>
-    <p>IT (stephen king)</p>
+    <p>it (stephen king)</p>
     <p>slendytubbies</p>
+    <p>madoka magica
     <p>project sekai
-    <p>vkei</p>
+    <p>visual kei</p>
+    <p>endzone + law of talos
     <p>touhou</p>
-    <p>other stuff: j-fashion, music, drawing, and typology</p>
-    <p>theres WAYYY more stuff that i know or like but thats all that comes to mind right now.. </p>
+    <p>other stuff: j-fashion, music, drawing, & typology
+    </p>aandd more that i dont feel like listing!!
+    <p>btw i dont like all of yhese with the same amount of intensity or knowledge i just wanted a bigger list that didnt include like only 4 things🥹
     
    
 
