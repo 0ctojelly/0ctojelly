@@ -20,8 +20,8 @@
     <p>HAI! you can call me by the character name or in-game name of my pony. i dont like my real name.., so i'll only share it if i'm comfortable with you ^^</p>
     <p>if you wanna know my exact age, just ask me (only if i've already been talking to you for a while!!)</p>
     <p>i go by she/they, but i don't mind if you call me by the pronouns of whoever my pony is ˙ᵕ˙</p>
-    <p>i'm puerto rican, i speak spanish as well! but i'm more comfortable speaking english. ( • ᴖ • ;)</p>
-    <p>i selfship!! with a plethora of characters, but i particularly love Diamant from FE Engage right now</p>
+    <p>i'm puerto rican, i speak spanish as well! but i'm more comfortable speaking english. ( • ᴖ •;)</p>
+    <p>im aroace, donr know what gender i am..... </p>
     <p>i am very self-conscious and care deeply about what others think of me</p>
   </div>
 </details>
