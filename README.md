@@ -1,15 +1,10 @@
-<p align="center"> (,,>ヮ<,,)
-
-
-
-
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1104962108115927093/1465445220891099218/Untitled2569_20260126141738.png?ex=697921b7&is=6977d037&hm=a730e4bf916645e7396ab2dc728b6e04ae64cb97200f75e8ba696d528ee5ce09" height="420"; width="420"/>
+  <img src="https://cdn.discordapp.com/attachments/1104962108115927093/1465445220891099218/Untitled2569_20260126141738.png?ex=697921b7&is=6977d037&hm=a730e4bf916645e7396ab2dc728b6e04ae64cb97200f75e8ba696d528ee5ce09" height="350"; width="350"/>
 </p>
 <br>
 
  <p align="center">
-  <img src="https://dividers.crd.co/assets/images/gallery04/2eec0f7d.png?v=05d33f91"height="250"; width="250"/>
+  <img src="https://dividers.crd.co/assets/images/gallery04/2eec0f7d.png?v=05d33f91"height="300"; width="300"/>
 </p>
 <br>
 
