@@ -17,10 +17,12 @@
   <summary>⠄･ ⋆ about me .ೃ࿔*:･</summary>
 
   <div align="center">
-    <p>HAI! you can call me by the character name or in-game name of my pony. i dont like my real name.., so i'll only share it if i'm comfortable with you ^^</p>
+    <p>HAI! you can call me by the character name or in-game name of my pony!
+    <p>i dont like my real name, so i'll only share it if i'm comfortable with you ^^
     <p>if you wanna know my exact age, just ask me (only if i've already been talking to you for a while!!)</p>
-    <p>i go by she/they, but i don't mind if you call me by the pronouns of whoever my pony is ˙ᵕ˙ i'm also aroace and probably agender</p>
-    <p>i'm puerto rican, and i speak spanish as well! i'm more comfortable speaking english tho(•-•;)
+    <p>i go by she/they, but i don't mind if you call me by the pronouns of whoever my pony is ˙ᵕ˙ 
+      <p> i'm aroace and probably agender</p>
+    <p>i am puerto rican, and also speak spanish as well ! but i'm more comfortable speaking english(•-•;)
       
    </p>
       ENFP IEE 4w5 so/sx sang-melan s|L|uAI ELFV <p>
@@ -36,12 +38,10 @@
   <summary>​⠄･ ⋆ponytown stuff​ .ೃ࿔*:･</summary>
 
   <div align="center">
-    <p>i... typically just sit there while i watch youtube or play games, never offtab though because disconnect blehhh</p>
-    <p>you can find me in or around the bakery most often, other times im on the path below spawn</p>
-    <p>if i like/recognize your pony i will whisper you with a crown because im just like that... heh</p>
-    <p>i love signing ppls atabooks!!! it would be so cool if you signed mine too winkkkk</p>
-    <p>i'm pretty shy but i am cuddle friendly!! very appreciated!! you can hide aswell but please dont hide me!!</p>
-    <p>even though i'm shy, if you wanna strike up conversation i'll happily talk!!! just that i'm terrible at starting conversations...!!!</p>
+    <p>i mainly sit around and observe others, but you're always free to talk with me! i might be awkward depending if i vibe with you or not...other than that, i'm pretty talkative most of the time! :D</p>
+    <p>i dont really have a set place i hang around yet so i could be anywhere !!..</p>
+    <p>like i mentioned earlier im probably just watching other ponies or hanging around one of my friends / with people in the same fandom</p>
+    <p>everytime i play on pc my pony starts nodding randomly so just ignore that Ok?</p>
   </div>
 </details>
 
