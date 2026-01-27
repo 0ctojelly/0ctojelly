@@ -51,19 +51,20 @@
   <summary>⠄･ ⋆fandoms .ೃ࿔*:･</summary>
 
   <div align="center">
-    <p>tbhk is my biggest interest,, BUT i specifically really rwally rwwlly reallyREALLY love tsukasa!! he's my special interest so i'll most likely be him on pt like 96.7195% of the time ᵔᵕᵔ</p>
-    <p>kikuo, YES specifically kikuo</p>
+    <p>toilet bound hanako kun 
+  <p>(not a fandom but I especially really rwally rwwlly reallyREALLY love yugi tsukasa)</p>
+    <p>kikuo (YES specifically kikuo)
     <p>ultrakill</p>
     <p>splatoon</p>
-    <p>vocaloid (mainly the producers)</p>
+    <p>vocaloid (mostly the producers)</p>
     <p>dandy's world. Yeah  </p>
     <p>cookie run (mainly kingdom)</p>
     <p>papa louie games</p>
     <p>it (stephen king)</p>
     <p>slendytubbies</p>
     <p>madoka magica
-    <p>project sekai
     <p>visual kei</p>
+    <p>project sekai
     <p>endzone + law of talos
     <p>touhou</p>
     <p>other stuff: j-fashion, music, drawing, & typology
