@@ -65,18 +65,22 @@
   <summary>⠄･ ⋆fandoms .ೃ࿔*:･</summary>
 
   <div align="center">
-    <p><b><i><ins>GAMES:</ins></i></b></p>
-    <p>Fire Emblem (all of them, but Engage, Binding Blade, Path of Radiance, Radiant Dawn, and Heroes most of all)</p>
-    <p>Kid Icarus (all of them)</p>
-    <p>Super Mario (all of them, but Super Paper Mario and Mario Kart 8 Deluxe most of all)</p>
-    <p>Miitopia</p>
-    <p>Rhythm Heaven (all of them)</p>
-    <p>Ace Attorney (all of them, but Trilogy most of all)</p>
-    <p>Roblox (Tornado Alley Ultimate, Decaying Winter, Dandy's World, Daybreak 2, Carnage)</p>
-    <p>Danganronpa (not UDG)</p>
-    <p>Dispatch</p>
-    <p>HATSUNE MIKU: COLORFUL STAGE! / Project Sekai</p>
-    <p>Team Fortress 2</p>
+    <p>tbhk is my biggest interest,, BUT i specifically really rwally rwwlly reallyREALLY love tsukasa!! he's my special interest so i'll most likely be him on pt like 96.7195% of the time ᵔᵕᵔ</p>
+    <p>kikuo, YES specifically kikuo</p>
+    <p>ultrakill</p>
+    <p>splatoon</p>
+    <p>vocaloid (mainly the producers)</p>
+    <p>dandy's world. Yeah  </p>
+    <p>cookie run (mainly kingdom)</p>
+    <p>papa louie games</p>
+    <p>IT (stephen king)</p>
+    <p>slendytubbies</p>
+    <p>project sekai
+    <p>vkei</p>
+    <p>touhou</p>
+    <p>other stuff: j-fashion, music, drawing, and typology</p>
+    <p>theres WAYYY more stuff that i know or like but thats all that comes to mind right now.. </p>
+    
    
 
 
