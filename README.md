@@ -1,8 +1,3 @@
- <p align="center">
-  <img src="https://dividers.crd.co/assets/images/gallery04/2eec0f7d.png?v=05d33f91"height="300"; width="300"/>
-</p>
-<br>
-
 <details align="center">
   <summary>⠄･ ⋆ about me .ೃ࿔*:･</summary>
 
