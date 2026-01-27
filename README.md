@@ -48,20 +48,6 @@
 <br>
 
 <details align="center">
-  <summary>⠄･ ⋆before you interact​ .ೃ࿔*:･</summary>
-
-  <div align="center">
-    <p>honestly i am... uhhh kinda easily annoyed... beware please</p>
-    <p>i'm kinda slow. please feel free to educate me on anything you need to and/or tell me im BEING slow because its... a lot more often than you might think</p>
-    <p>i get kinda jealous with my favs. dont get me wrong im glad other people like my favs too, i just get nervous when people seem to like them more than me if that makes sense</p>
-    <p>im a yapper if you cant already tell by this page</p>
-    <p>i try to mirror the way you speak when we interact, i promise im not trying to copy you, i just dont want to look weird for speaking a different way</p>
-  </div>
-</details>
-
-<br>
-
-<details align="center">
   <summary>⠄･ ⋆fandoms .ೃ࿔*:･</summary>
 
   <div align="center">
