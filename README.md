@@ -38,8 +38,8 @@
   <summary>​⠄･ ⋆ponytown stuff​ .ೃ࿔*:･</summary>
 
   <div align="center">
-    <p>i mainly sit around and observe others, but you're always free to talk with me! i might be awkward depending if i vibe with you or not...other than that, i'm pretty talkative most of the time! :D</p>
-    <p>i dont really have a set place i hang around yet so i could be anywhere !!..</p>
+    <p>i mainly sit around and observe others, but you're always free to talk with me! i might be awkward depending if i vibe with you or not...other than that, i'm pretty talkative most of the time! :D
+    <p>i dont  have a set place i hang around yet so i could be anywhere really</p>
     <p>like i mentioned earlier im probably just watching other ponies or hanging around one of my friends / with people in the same fandom</p>
     <p>everytime i play on pc my pony starts nodding randomly so just ignore that Ok?</p>
   </div>
