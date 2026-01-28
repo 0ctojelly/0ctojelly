@@ -31,7 +31,7 @@
 
   <div align="center">
     <p>toilet bound hanako kun 
-  <p>(not a fandom but I especially really rwally rwwlly reallyREALLY love yugi tsukasa)</p>
+  <p>(not a fandom but I especially really rwally rwwlly reallyREALLY love  tsukasa yugi)</p>
     <p>kikuo (YES specifically kikuo)
     <p>ultrakill</p>
     <p>splatoon</p>
