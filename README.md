@@ -37,7 +37,6 @@
     <p>ultrakill</p>
     <p>splatoon</p>
     <p>vocaloid (mostly the producers)
-    <p>dandy's world  </p>
     <p>cookie run (mainly kingdom)</p>
     <p>papa louie games</p>
     <p>IT
