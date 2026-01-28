@@ -5,14 +5,8 @@
     <p>HAI! you can call me by the character name or in-game name of my pony!
     <p>#NGL dont like my real name. so i'll only share it if i'm comfortable with you ^^
     <p>if you wanna know my exact age, just ask me (only if i've already been talking to you for a while!!)</p>
-    <p>i go by she/they, but i don't mind if you call me by the pronouns of whoever my pony is ˙ᵕ˙ 
-      <p>i'm aroace and probably agender</p>
-    <p>i am puerto rican, and i also speak spanish as well ! but i'm more comfortable speaking english(•-•;)
-      
-   </p>
-      ENFP IEE 4w5 so/sx sang-melan s|L|uAI ELFV <p>
-        
-  (not sure abt tritype yet sorrayyy)
+    <p>i go by she/they, but i don't mind if you call me by the pronouns of whoever my pony is ˙ᵕ˙ i'm also aroace and PROBABLY agender</p>
+    <p>i am puerto rican, and i also speak spanish as well ! but i'm more comfortable speaking english(• - •;) 
         
   </div>
 </details>
