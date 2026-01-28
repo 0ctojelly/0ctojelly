@@ -40,9 +40,9 @@
     <p>dandy's world. Yeah  </p>
     <p>cookie run (mainly kingdom)</p>
     <p>papa louie games</p>
-    <p>IT</p>
-    >p>my singing monsters
-    <p>slendytubbies</p>
+    <p>IT
+    <p>my singing monsters
+    <p>slendytubbies
     <p>madoka magica
     <p>visual kei</p>
     <p>project sekai
