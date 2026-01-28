@@ -36,11 +36,12 @@
     <p>kikuo (YES specifically kikuo)
     <p>ultrakill</p>
     <p>splatoon</p>
-    <p>vocaloid (mostly the producers)</p>
+    <p>vocaloid (mostly the producers)
     <p>dandy's world. Yeah  </p>
     <p>cookie run (mainly kingdom)</p>
     <p>papa louie games</p>
-    <p>it (stephen king)</p>
+    <p>IT</p>
+    >p>my singing monsters
     <p>slendytubbies</p>
     <p>madoka magica
     <p>visual kei</p>
