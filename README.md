@@ -3,9 +3,8 @@
 
   <div align="center">
     <p>HAI! you can call me by the character name or in-game name of my pony!
-    <p>iiii dont like my real name. so i'll only share it if i'm comfortable with you ^^
-    <p>i go by she/they, but i don't mind if you call me by the pronouns of whoever my pony is!</p>
-    <p>thats all im not sharing every detail about myself for pony town..
+    <p>pronouns are dependent on the pony i'm using<p>
+    <p>im not gonna share my life story on here so that's all but feel free to ask me more if I talk with you!</p>
         
   </div>
 </details>
