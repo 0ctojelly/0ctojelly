@@ -3,7 +3,7 @@
 
   <div align="center">
     <p>HAI! you can call me by the character name or in-game name of my pony!
-    <p>pronouns are dependent on the pony i'm using<p>
+    <p>pronouns are dependent on the pony im using<p>
     <p>im not gonna share my life story on here so that's all but feel free to ask me more if I talk with you!</p>
         
   </div>
