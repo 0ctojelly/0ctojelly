@@ -1,5 +1,5 @@
 <details align="center">
-  <summary>⠄･ ⋆ about me .ೃ࿔*:･</summary>
+  <summary>⠄･ ⋆ about me .</summary>
 
   <div align="center">
     <p>HAI! you can call me by the character name or in-game name of my pony!
@@ -14,7 +14,7 @@
 <br>
 
 <details align="center">
-  <summary>​⠄･ ⋆ponytown stuff​ .ೃ࿔*:･</summary>
+  <summary>​⠄･ ⋆ponytown stuff​ .</summary>
 
   <div align="center">
     <p>i mainly sit around and observe others, but you're always free to talk to me! i might be awkward depending if i vibe with you or not...other than that, i'm pretty talkative most of the time! :D
@@ -28,7 +28,7 @@
 <br>
 
 <details align="center">
-  <summary>⠄･ ⋆fandoms .ೃ࿔*:･</summary>
+  <summary>⠄･ ⋆fandoms .</summary>
 
   <div align="center">
     <p>toilet bound hanako kun 
