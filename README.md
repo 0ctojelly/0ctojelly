@@ -4,7 +4,7 @@
   <div align="center">
   <p>HAI! you can call me by the character name or in-game name of my pony!
     <p>pronouns are dependent on the pony im using<p>
-    <p>im not gonna display more detailed info about myself cuz i don't like doing so on pages like this,, but feel free to ask me more if i talk with you!</p>
+    <p>im not gonna display more detailed info about myself cuz i don't like doing so on pages like this,, but feel free to ask me more if i talk with you ^^</p>
         
   </div>
 </details>
