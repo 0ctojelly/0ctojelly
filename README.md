@@ -26,7 +26,7 @@
 <br>
 
 <details align="center">
-  <summary>interests​ .</summary>
+  <summary>interests​ </summary>
 <p>My main fandom is tbhk and i am extremely autistic about tsukasa</p>
 <p>I also reallyreally love ultrakill right now</p>
 <p>i like a lot of other things but my interest in each varies widely. these are the only things im absorbed in the most this current moment !</p>
