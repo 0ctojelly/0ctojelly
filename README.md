@@ -32,12 +32,10 @@
 
   <div align="center">
     <p>toilet bound hanako kun 
-  <p>(not a fandom but I especially really rwally rwwlly reallyREALLY love  tsukasa yugi)</p>
-    <p>kikuo (YES specifically kikuo)
     <p>ultrakill</p>
     <p>splatoon</p>
-    <p>vocaloid (mostly the producers)
-    <p>cookie run (mainly kingdom)</p>
+    <p>vocaloid<p>
+    <p>cookie run</p>
     <p>papa louie games</p>
     <p>IT
     <p>my singing monsters
