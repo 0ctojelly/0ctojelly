@@ -16,7 +16,7 @@
 
   <div align="center">
     <p>i mainly sit around and observe others, but you're always free to talk to me! i might be awkward depending if i vibe with you or not...other than that, i'm pretty talkative most of the time! 'ᵕ'
-    <p>i'll hang around wherever i feel like at the moment, but i'm usually at the marketplace or bakery!</p>
+    <p>i'll hang around wherever i feel like at the moment, But i'm usually at the marketplace or bakery</p>
 <p>DNC ... if you wanna take inspo, just ask me!!
 <p>sometimes when i play on pc my pony starts emoting randomly so just ignore that Ok?</p>
   </div>
