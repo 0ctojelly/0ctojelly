@@ -2,7 +2,7 @@
   <summary>about me </summary>
 
   <div align="center">
-    <p>what my name is? uuhhhh. U can call me octo or jelly?,,,. (my real name is reserved to COOL PEOPLE ONLY!!!)</p>
+    <p>what my name is? uuhhhh. U can call me octo or jelly,,,. (my real name is reserved to COOL PEOPLE ONLY!!!)</p>
     <p>aroace & agenderflux, my pronouns are dependent on the pony im using
     .HOWEVER she/they if we're friends<p>
     <p>im not gonna display more detailed info about myself cuz i don't like doing so on pages like this,, but feel free to ask me more if i talk with you ^^</p>
@@ -29,7 +29,7 @@
   <summary>interests​ </summary>
 <p>My main fandom is tbhk and i am extremely autistic about tsukasa</p>
 <p>Im also reallyreally into ultrakill right now. (why have i never seen a tbhk AND ultrakill fanUGHHHH so lonely)</p>
-<p>I like a lot of other things but my interest in each varies drastically. these are the only things im absorbed in the most this current moment .. (dont feel like listing my other interests atm. butttt i might make one of those listography things in the future ayayay)</p>
+<p>I like a lot of other things but my interest in each varies drastically. these are the only things im absorbed in the most this current moment .. (dont feel like listing my other interests atm. butttt i might make one of those listography things in the future yayay)</p>
   </div>
 </details>
 
