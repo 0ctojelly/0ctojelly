@@ -27,9 +27,8 @@
 
 <details align="center">
   <summary>interests​ </summary>
-<p>My main fandom is tbhk and i am extremely autistic about tsukasa</p>
-<p>Im also reallyreally into ultrakill right now. why have i never seen a tbhk AND ultrakill fanUGHHHH so lonely</p>
-<p>I like a lot of other things but my interest in each varies drastically. these are the only things im absorbed in the most this current moment .. dont feel like listing my other interests atm. butttt i might make one of those listography things in the future yayay</p>
+<p>LOOK!LOOK!LOOK!!!⬇️⬇️⬇️⬇️👇👇👇👇</p>
+<p>https://listography.com/2565421715?m=6404158689</p>
   </div>
 </details>
 
