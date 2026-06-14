@@ -3,7 +3,7 @@
 
   <div align="center">
     <p>what my name is? uuhhhh. U can call me octo or jelly,,,. (my real name is reserved to COOL PEOPLE ONLY!!!)</p>
-    <p>im a minor.. yep. Just a bebeh</p>
+    <p>im a minor, yep.. Just a bebeh</p>
     <p>aroace & agenderflux, my pronouns are dependent on the pony im using
     .HOWEVER she/they if we're friends<p>
     <p>im not gonna display more detailed info about myself cuz I Dont feel like doing it here, but feel free to ask more about me if i talk with you ^_^</p>
